@@ -1,4 +1,4 @@
-# mountain
+# Bhurich
 Hi 👋 My name is Bhurich .sri
 =============================
 
